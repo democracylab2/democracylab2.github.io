@@ -1,1 +1,1 @@
-# democracylab2.github.io
+# democracylab2.org
